@@ -1,0 +1,1 @@
+# checkscamfake.github.io
